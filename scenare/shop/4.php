@@ -1,0 +1,1 @@
+<p>Dal sis jablíčko a udělalo ti to dobře na tělíčko... Tvé zdraví bylo obnoveno o 5 bodů.</p>

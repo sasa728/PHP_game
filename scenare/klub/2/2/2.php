@@ -1,0 +1,1 @@
+﻿<p>Začal si balit holku, která seděla sama na sedačce. Myslel si jak to je dobrý nápad. Jenže tvoje nevymáchaná huba upustila pár narážek, co ti připadaly strašně vtipný. Holka se urazila a nejen to. Podpadkem si rozdrtila palec u nohy a kolenem rozkrok. Tvé zdraví klesá o 5 bodů.</p>

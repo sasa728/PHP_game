@@ -1,0 +1,1 @@
+﻿<p>Tak tyhle máčka byly asi pašovaný, protože tě to nakoplo jak divokej pakůň a pak prohnalo jak nějaká šelma. Tvá únava se snižuje o 10 bodů.</p>

@@ -1,0 +1,1 @@
+﻿<p>Přišel si to rozjet na parket a co se nestalo. Přišla tvoje parta a pořádně ste to tam rozjeli. Všichni byli uneseni z vašich tanečních kroků. Udělali jste neopakovatelnou show a všem se to náramně líbilo. Pozdě ráno si došel spokojený domů. Tvé zkušenosti rostou o 2 body.</p>

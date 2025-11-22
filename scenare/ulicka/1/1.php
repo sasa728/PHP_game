@@ -1,0 +1,1 @@
+ <p>Potkal si potencionálního útočníka, ale ubránil ses a dokonce si mu ukradl šrajtofli. Získáváš 30 korun a 5 bodů zkušeností.</p>

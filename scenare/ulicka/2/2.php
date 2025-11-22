@@ -1,0 +1,1 @@
+﻿<p>Dostal si pořádnou nakládačku. O tom žádná... Seš celej dokrvácenej a přemýšlíš jesi nezavolat sanitku. Ale tvoje lhostejnost vůči sobě samému ti to nedovolila. Raději ses v krvi odbelhal pryč. Ztratil si 30 bodů zdraví a 5 korun.</p>

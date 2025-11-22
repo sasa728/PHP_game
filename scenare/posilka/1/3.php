@@ -1,0 +1,1 @@
+﻿<p>Nádhera, dal sis kondiční tréning. Cítíš se že by si uběhl i maraton. Ještě pár takových a bude z tebe úplnej Bolt.</p>

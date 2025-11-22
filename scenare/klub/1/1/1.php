@@ -1,0 +1,1 @@
+<p>Šel sis kalit na bar a usmálo se na tebe štěstí. Nějakej hlupák, co si ho viděl pašovat flašku skrz vstup si ji zapomněl položenou u baru. Nametl ses jak to hovádko, ke všemu zadarmo a spokojeně sis odkráčel domů. Tvá zkušenost stoupá o 2 body.</p>

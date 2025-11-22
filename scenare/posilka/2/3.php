@@ -1,0 +1,1 @@
+﻿<p>Při cvičení sis natáhl sval. Je to nemilé, ale prostě tohle se občas stává. Musíš se s tím smířit. Ztrácíš 5 bodů zdraví.</p>

@@ -1,0 +1,1 @@
+﻿<p>Cvičil si na stroji, který má oblíbený místní posilkáč. Pořádně tě vypráskal a příště si asi rozmyslíš, jesi tam půjdeš znova. Ztrácíš 5 bodů zdraví.</p>

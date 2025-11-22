@@ -1,0 +1,1 @@
+<p>Přišel si na bar, sedl sis na židlu a ještě než sis stihl objednat, tak přišla nějaká gorila a řekla, že mu sedíš na místě. Dal ti pořádně nabudku a raději ses odklidil domů. Ztratil si 10 bodů zdraví. </p>

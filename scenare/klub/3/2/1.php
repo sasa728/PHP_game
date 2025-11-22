@@ -1,0 +1,1 @@
+<p>Tancoval si a prvních pár písniček bylo úplně úžasných. Ale po pár minutách začal DJ pouštět neskutěčná zvěrstva. Šel si znechucený domů a bolí tě hlava z těch věcí co tam pouštěl. Tvé zdraví klesá o 5 bodů.</p>

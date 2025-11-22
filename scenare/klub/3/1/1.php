@@ -1,0 +1,1 @@
+<p>Tancoval sis na parketu a nenechal se vyvést z míry okolními zfetovanci. Parádně sis to užil. DJ ti dokonce pustil tvoji oblíbenou skladbu. No prostě paráda. Pozdě ráno si šel naprosto spokojený domů. Tvá zkušenost se zvedla o 2 body.</p>

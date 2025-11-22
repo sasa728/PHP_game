@@ -1,0 +1,1 @@
+﻿<p>Přiznával si se k hříchům a v půlce tě farář zastavil a řekl, že má dost, ať už nemluvíš a že ti odpouští. S klidem v duši sis řekl, že to je pohoda a odcházíš si. Karma ti tuto drzost ale oplatila a před kostelem si šlápl na kostku lega. Co tu dělala nikdo neví, ale tvé zdraví kleslo o 5 bodů.</p>

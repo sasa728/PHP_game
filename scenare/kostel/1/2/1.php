@@ -1,0 +1,1 @@
+<p>Přiznal si se k hříchům a farář se začal usmívat. Řekl sis, že to je dobré znamení. V zápětí tě s úsměvem začal mlátit hlava nehlava s výkřiky, že tě už nikdy nechce v kostele vidět. No, tak tohle si fakt nečekal. Tvé zdraví klesl o 5 bodů.</p>

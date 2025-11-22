@@ -1,0 +1,1 @@
+﻿<p>Na baru to vypadalo klidně. Objednal sis svůj oblíbenej drink a to "aloe s vodkou", než si se stihl dočkat, tak se v klubu sehnala neskutečná rvačka. Nikdo po tobě nešel, ale jak po sobě házeli židlema, tak tě trefili do hlavy. Nejen, že máš slabý otřes mozku, ale rozbili ti i pití než si se stihl napít. Raději si odešel domů. Ztrácíš 10 bodů zdraví.</p>

@@ -1,0 +1,1 @@
+﻿<p>Dneska si neskipnul legday. To tě šlechtí. Tvoje uplé dříny začínají být malé, ale ty si z toho nic neděláš a cítíš se silnější.</p>

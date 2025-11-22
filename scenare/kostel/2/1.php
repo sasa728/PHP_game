@@ -1,0 +1,2 @@
+<p>Koupil sis odpustku. No co už, občas potřebuješ odpustit i bez složitého vykládání.
+   Kupování odpustek sice nepatří mezi nejčistší věci, ale tvé zkušenosti vesničana to jistě zvýšilo. Ke zkušenostem se přičetl jeden bod.</p>

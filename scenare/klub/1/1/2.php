@@ -1,0 +1,1 @@
+﻿<p>Přišel si na bar a co se nestane. Potkáš svýho starýho dobrýho známýho a bývalýho spolužáka ze střední Jožka. Jožko tě pozval na pár panáků a drinků, opil si se celkem kvalitně a zadarmo a dobře si i s Jožkem pokecal. V ranních hodinách si se odklidil sám spokojeně domů. Tvá zkušenost stoupá o 2 body.</p>

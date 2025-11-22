@@ -1,0 +1,1 @@
+ <p>Ajaj. Spadla ti 150 kilová činka na nohu. Pravděpodobně to není zlomenina, ale jen naraženina, ale i tak, den to pokazit dokáže. Ztrácíš 5 bodů zdraví.</p>

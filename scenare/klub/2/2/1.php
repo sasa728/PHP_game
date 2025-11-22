@@ -1,0 +1,1 @@
+<p>Vytipoval sis pěknou holku u baru. Přišel si za ni a nekladla odpor. Jenže po čtvrt hodině přišel její dvoumetrový přítel a moc se stebou nevybavoval jak ona. Dal ti pár ran a raději si odešel. Tvé zdraví klesá o 5 bodů.</p>

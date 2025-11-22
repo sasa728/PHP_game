@@ -1,0 +1,1 @@
+﻿<p>Pokusil ses někoho v  temné uličce najít, ale nepovedlo se. Tak ses otočil a odcházíš. Když náhle ze stínu vyskočil útočník. Hbitě ses otočil a jednu mu fláknul. Doslova jednou  ranou si ho uzemnil. Získáváš 30 korun a 5 bodů zkušeností.</p>

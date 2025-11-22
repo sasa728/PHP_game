@@ -1,0 +1,1 @@
+ <p>V uličce na tebe byla připravena past. Zaútočil na tebe zezadu a pořádně tě zničil. Bohužel si přišel o 30 bodů zdraví a 5 korun...</p>

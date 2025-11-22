@@ -1,0 +1,1 @@
+<p>Přiznal si se k hříchům a farář ti s radostí řekl, že ti odpouští, ale kvůli odpuštění si nemusel říkat hříchy za celý tvůj život. S klidem v duši si zamlčel, že si řekl hříchy za poslední týden a raději odcházíš. Tvá zkušenost se zvedá o jeden bod.</p>

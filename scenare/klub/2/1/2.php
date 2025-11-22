@@ -1,0 +1,1 @@
+﻿<p>Vytipoval sis nějakou holku, co vypadala, že to nemyslí moc vážně, protože si hledal známost na jednu noc. A vybral sis správně. Byla to přesně ta, co si hledal. Pořádně sis večer užil a druhý den si ji již nikdy neviděl, což tě vlastně ani neštve, kdo ví jak by vypadala, až by si trochu vystřízlivěl. Tvá zkušenost stoupá o 2 body.</p>

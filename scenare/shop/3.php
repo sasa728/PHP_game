@@ -1,0 +1,1 @@
+﻿<p>Není nad starý dobrý Staro Bahno. Takovýho pivenca jen tak někde nekoupíš. A ta kvalita poctivého čepování do lahve. Úplná nádhera, tvé zdraví to zvedlo o 10 bodů.</p>

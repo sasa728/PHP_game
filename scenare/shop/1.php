@@ -1,0 +1,1 @@
+<p>Tenhle bejk ti dal co proto. Cítil ses jak kdejakej toreádor, protože takové energie najednou, to snad není ani možné. Tvá únava klesá o 20 bodů.</p>

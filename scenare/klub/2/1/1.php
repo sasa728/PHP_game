@@ -1,0 +1,1 @@
+<p>Přišel si za pěknou holkou, co seděla sama u baru. Zjistil si, že je to docela hodná pěkná holka v tvojem věku. Pěkně ste si pokecali a v pozdních ranních hodinách si ji doprovodil domů. Dala ti číslo a uvidíš jesi to někdy prubneš. Tvá zkušenost (a nejen ta) stoupá o 2 body.</p>

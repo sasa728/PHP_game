@@ -1,0 +1,1 @@
+﻿<p>Tancoval sis náramně. Vypadalo to na super večer. Do té doby, než tam místní banda pobudů rozjela moshpit do krve a bohužel si se do něho zapletl také. Nejen že tě málem udupali a ukopali k smrti, ale máš dokonce i otřes mozku. Tvé zdraví klesá o 5 bodů.</p>

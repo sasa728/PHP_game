@@ -1,0 +1,1 @@
+﻿<p>Přiznal si se k hříchům. Ostatně jako každý jiný člověk, který chodí do kostela přiznává se k hříchům. Nic speciálního se nestalo. Pár věcí si zatajil, pár upravil a farář řekl, že to není zase tak zlé a odpustil ti. Tvá zkušenoust stoupla o jeden bod.</p>
